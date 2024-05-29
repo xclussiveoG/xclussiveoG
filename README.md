@@ -1,0 +1,7 @@
+- 👋 helloS, I’m  ikirezi xclussive 
+- 👀 I’m interested in software engineering
+- 🌱 I’m currently learning against becoming fullstack developer
+- 💞️ I’m looking to collaborate on each and every software contents
+-  reach me on my IG LINKED IN AND TWITTER
+- 😄 ALWAYS XCLUSSIVE
+- XCLUSSVE.ORG
